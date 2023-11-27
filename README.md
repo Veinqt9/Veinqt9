@@ -1,3 +1,3 @@
-- Hey, we're hiring analyst and developer for [SberMegaMarket]([url](https://tech-sbermegamarket.notion.site/tech-sbermegamarket/f046805dfaed4f729657207e90e69d3a)) - one of the top russian e-com project 👀
-- You can connect with me on mail polina.butova@sbermegamarket.ru or veinqt9@gmail.com for other things:О
+- Hey!
+- You can connect with me on mail veinqt9@gmail.com
 - My CV https://test-python.notion.site/Lina-Butova-bc13d2e9efa845dd9547d7a4e935c55f?pvs=4
